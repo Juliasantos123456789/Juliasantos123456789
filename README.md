@@ -3,5 +3,5 @@
 Julia Santos
 
 - Amo dormi
-- Amo beber-
+- Amo beber
 - Amo fumar
